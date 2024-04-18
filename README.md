@@ -1,7 +1,13 @@
-# **ENCHILADAS SUIZAS VERDES**
+![portada](https://delination.com/wp-content/themes/delination_1p5/assets/img/logo-delination.svg)
+
+<BR><BR>
+<BR><BR>
+<BR><BR>
+
+### **ENCHILADAS SUIZAS VERDES**
 <br>
 
-![Enchiladas Suizas Verdes](enchiladas.png)
+![Enchiladas Suizas Verdes](https://delination.com/wp-content/uploads/2022/08/Enchiladas-suizas-verdes-850x550.png)
 
 
 <br><br><br><br>
@@ -51,7 +57,27 @@ segundos o hasta que el queso esté fundido. Decora con un poco de cebolla morad
 
 <BR><BR><BR><BR><BR>
 
-Visita nuestro canal de cocina
+### VISITANOS EN NUESTRAS DIFERENTES PLATAFORMAS PARA MAS RECETAS.
+
+<BR><BR>
 
 
- [![Visita Nuestro canal de Cocina](https://img.youtube.com/vi/E_qLMOf9lDs/0.jpg)](https://www.youtube.com/watch?v=E_qLMOf9lDs)
+
+ ![Youtube](https://cdn-icons-png.flaticon.com/128/1384/1384060.png) [Youtube](https://www.youtube.com/channel/UC0p9VAbW9UwUbInfCtuWN1w/videos)
+<br> 
+<br> 
+<br> 
+![TikTok](https://cdn-icons-png.flaticon.com/128/13673/13673995.png) [TikTok](https://www.tiktok.com/@delination.mx?is_from_webapp=1&sender_device=pc)
+
+ <br>
+ <br>
+ <br>
+
+
+![FaceBook](https://cdn-icons-png.flaticon.com/128/5968/5968764.png)[FaceBook](https://www.facebook.com/Delination.MX)
+ 
+<br>
+<br>
+<br>
+
+![Instagram](https://cdn-icons-png.flaticon.com/128/1409/1409946.png)[Instagram](https://www.instagram.com/delination/)
